@@ -1,0 +1,4 @@
+THIS DESIGNER BRONZER HAS EVEN THE DRUGSTORE-BEAUTY-BUYERS SPLURGING!
+HAPPY SPRING! I have been dying over all the cute decor finds this spring! I wanted to share some of my favorites if you guys are on the hunt for a spring refresher. These are all at great price points too. You guys know how much I love neutrals for decor – the pieces are easier to transition between seasons so you get more use out of all of them.
+
+One of my favorite ways to switch up a space it with the linens – pillows, throw blankets, rugs, etc. Love the pretty stripes on this pillow and this throw blanket looks so cozy! Major sale alert – this rug is 45% and under $100 and has almost 5 stars. Love the blush and grey combo but it’s also subtle enough that it could work in multiple spaces. I love olive trees but good quality ones can be really expensive so I was shocked at the price on this one – also love this plant version here.
